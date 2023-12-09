@@ -1,5 +1,5 @@
 Link to unlisted YouTube video:
-https://youtube.com/.....
+https://youtu.be/WAX9P17yc74?si=JtPnlFO_zYFpg27T
 
 Public link to the slide (Anyone on the internet can view without login):
 https://docs.google.com/presentation/d/153Cxyb01PgxtAMUJ-Z06uT_BvuLdh_oBGADkUPDn7GI/edit?usp=sharing
